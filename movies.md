@@ -1,6 +1,5 @@
-
 - [Kính vạn hoa](https://youtube.com/playlist?list=PLFk1RtAQGTYV_wFjNd1filUx1mbZowwzz) 
-- [Sóng ở đáy sông](https://youtube.com/playlist?list=PLI4DZVYqSXKOVBZMyJJ2A4mHmK-OwSv3O) - Some art work of the 2000s right there |
+- [Sóng ở đáy sông](https://youtube.com/playlist?list=PLI4DZVYqSXKOVBZMyJJ2A4mHmK-OwSv3O) - Some art work of the 2000s right there
 - [Bố già](https://youtube.com/playlist?list=PLTm0qahjF8VadPrSM9qJGHYmFEHjFvo6o) 
 - [Hẻm cụt](https://youtube.com/playlist?list=PLTm0qahjF8VacCOvM5POUeaAKF9DH3KWC)  
 - Tôi thấy hoa vàng trên cỏ xanh
